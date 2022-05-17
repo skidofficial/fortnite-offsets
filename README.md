@@ -1,2 +1,2 @@
-if u need help lmk discord: skid#4956 will try to update these every update depends how lazy i am
-# if you guys star my github shit lowkey might update the exploits & offsets every update
+Some offsets missing, Most likely not gonna update this within the 12 hours of fn update bc school & etc etc.
+Other no life's will though and I have no problem with that, I will give the offsets as soon as I can.
